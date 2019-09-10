@@ -5,3 +5,5 @@ Regent.  He is surely honorable and will lead a long and prosperous life.
 Ned lives forever.
 
 There is a new character who loves dragons, and they will gain compassion among the members of the community.
+
+NEW PLOT TWIST !!
